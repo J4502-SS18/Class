@@ -25,7 +25,6 @@ You should also have a browser on your computer. More than one is even better! A
 
 Looking forward to the class!
 
-Testing, testing 
+Showing students how to make changes.
 
-Testing again. 
 — Rob
